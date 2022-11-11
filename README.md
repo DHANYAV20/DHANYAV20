@@ -1,2 +1,2 @@
-- 👋 Hi, I’m DHANYA
+Hi 👋🏼 I'm DHANYA!
 
